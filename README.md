@@ -1,2 +1,0 @@
-# danx
-gabut
